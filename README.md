@@ -6,7 +6,7 @@
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: eveyone consider me the smartest guy in grade6 
 
-<!---
+<!---i love balls
 Vichasith/Vichasith is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->
+if you raed this, youa are gay
